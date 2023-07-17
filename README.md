@@ -8,3 +8,4 @@ I have recently been focusing on expanding my skillset, particularly in the fiel
 - e-mail: ggairapetyan@gmail.com
 - mobile: +374 55 154 560
 - WhatsApp: +7 925 492 492 8
+- Linkedin: https://www.linkedin.com/in/georgii-airapetyan-a95209254/
